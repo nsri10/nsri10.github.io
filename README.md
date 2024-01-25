@@ -1,1 +1,0 @@
-# nsri10.github.io
